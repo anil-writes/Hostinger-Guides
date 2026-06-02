@@ -18,17 +18,9 @@ You’re in the right place. Claim an **[exclusive 88% discount](https://devgrap
 
 ## Hostinger Coupon Codes for June 2026
 
----
-
 ### Hostinger 85% Off Coupon Code + Up to 3 Months Extra
 
 Use this **[Hostinger coupon code](https://devgraphiq.com/hostinger-recommends)**, the most popular deal in early 2026, to save **up to 85% off on Hostinger plans** when you pick a longer subscription period. This offer often includes **up to 3 months extra** added on top of the discount. Click the “Claim Now” button below to auto-apply this 85% discount at checkout.
-
-#### With this offer:
-- Huge reduction on **Premium** and **Business** hosting plans  
-- Some plans include **3 free months** of service  
-- **Free domain name for 1 year** (often included)  
-- **Free SSL** and **weekly backups** come standard  
 
 
 <p align="center">
