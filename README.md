@@ -14,11 +14,11 @@ Let’s explore the top Hostinger offers together.
 
 > **🛡️ Why Trust This Guide?**
 >
-> Unlike generic coupon sites, we manually test these Hostinger promo codes every week. As of May 2026, all links are verified to auto-apply the maximum possible discount at checkout through the offer link on the page. No fake codes, no expired offers.
+> Unlike generic coupon sites, we manually test these Hostinger promo codes every week. As of June 2026, all links are verified to auto-apply the maximum possible discount at checkout through the offer link on the page. No fake codes, no expired offers.
 
 ---
 
-## Hostinger Coupon Codes for May 2026
+## Hostinger Coupon Codes for June 2026
 
 This section lists the latest Hostinger discount codes, deals, and promotional offers in 2026 for all the pricing plans. Where the long-term plans, like 12–48 months, have more discounts and benefits. Check out the ongoing Hostinger discount coupons and deals listed below.
 
@@ -277,7 +277,7 @@ Hostinger **[Upgrade & Renewal Coupons](https://devgraphiq.com/hostinger-recomme
 
 ---
 
-## Hostinger Pricing Plans (with Discount) Overview (May 2026)
+## Hostinger Pricing Plans (with Discount) Overview (June 2026)
 
 Hostinger offers a range of hosting plans designed to fit different website needs, from simple personal sites to growing businesses and high-traffic projects. Here’s a quick breakdown to help you understand which plan makes the most sense for your goals:
 
