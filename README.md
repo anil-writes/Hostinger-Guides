@@ -1,4 +1,4 @@
-# Hostinger Coupon Code 2026 | Get 88% Discount + Free Domain
+# Hostinger Coupon Code 2026: Get 88% OFF + Free Domain (Verified)
 
 If you’re planning to launch a website, blog, portfolio, or online store in 2026, this guide walks you through the real, working **[Hostinger coupon codes](https://devgraphiq.com/hostinger-recommends)** and deals that help you **save up to 88%** or more on hosting plans, including how to get a Free Domain.
 
