@@ -321,10 +321,7 @@ Simply select your preferred hosting plan through the verified offer link or “
 
 👉🏻  **[Hurry Up! Claim Hostinger 20% Off Coupon Code](https://devgraphiq.com/hostinger-recommends)** ✅
 
-[Hostinger Coupon Code For First Time User](https://github.com/Arohis-Den/Hostinger-Advisor/)
-
-[Hostinger Coupon Code For Hosting](https://github.com/Official-Updates/WordPress-Updates)
-
-[Hostinger Coupon Code for Domain](https://hostinger-coupon-code.beehiiv.com/p/hostinger-coupon-code-for-domain)
-
-[Hostinger Coupon Code for Hosting](https://sites.google.com/view/hostinger-coupon-codez/home)
+- [Hostinger Coupon Code For First Time User](https://github.com/Arohis-Den/Hostinger-Advisor/)
+- [Hostinger Coupon Code For Hosting](https://github.com/Official-Updates/WordPress-Updates)
+- [Hostinger Coupon Code for Domain](https://hostinger-coupon-code.beehiiv.com/p/hostinger-coupon-code-for-domain)
+- [Hostinger Coupon Code for Hosting](https://sites.google.com/view/hostinger-coupon-codez/home)
