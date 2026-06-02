@@ -2,8 +2,6 @@
 
 Looking for a working **Hostinger coupon code** for 2026? You’re in the right place. Claim an **exclusive 88% discount** on premium web hosting plans and instantly unlock free perks, including a Free Domain and SSL certificate.
 
-Don't overpay for your website's foundation. Grab the maximum possible discount available right now and start building today.
-
 <p align="center">
   <a href="https://devgraphiq.com/hostinger-recommends">
     <img width="200" alt="Claim Hostinger Coupon Code" src="https://github.com/user-attachments/assets/3bc101f1-4dbe-4fae-b9aa-d30f708e3fdf" />
