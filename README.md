@@ -2,7 +2,7 @@
 
 Looking for a working **Hostinger coupon code** to renew your domain or hosting with Hostinger?
 
-You’re in the right place. Claim an **exclusive 88% discount** on premium web hosting plans and instantly unlock free perks, including a Free Domain and SSL certificate.
+You’re in the right place. Claim an **[exclusive 88% discount](https://devgraphiq.com/hostinger-recommends)** on premium web hosting plans and instantly unlock free perks, including a Free Domain and SSL certificate.
 
 <p align="center">
   <a href="https://devgraphiq.com/hostinger-recommends">
