@@ -299,8 +299,8 @@ Whether you’re starting your first site or upgrading an existing one, these de
 
 <p align="center">
   <a href="https://devgraphiq.com/hostinger-recommends">
-    <img width="200" alt="Sign Up For Hostinger Now" src="https://github.com/user-attachments/assets/c77ade4c-896b-4e46-b0b9-fd912bb1fc74" />
-  </a>
+<img width="500" height="80" alt="Claim 88% OFF at Hostinger Now" src="https://github.com/user-attachments/assets/27c8da97-008f-46d4-895d-b736b4eff915" />
+</a>
 </p>
 
 ---
