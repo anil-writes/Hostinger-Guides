@@ -1,11 +1,5 @@
 # Hostinger Coupon Code 2026: Get 88% OFF + Free Domain (Verified)
 
-<p align="center">
-  <a href="https://devgraphiq.com/hostinger-recommends">
-<img width="500" height="80" alt="Claim 88% OFF at Hostinger Now" src="https://github.com/user-attachments/assets/80c55e3f-2c09-448e-be0f-53450bbf3502" />
-</a>
-</p>
-
 Looking for a working **Hostinger coupon code** to renew your domain or hosting with Hostinger?
 
 You’re in the right place. Claim an **[exclusive 88% discount](https://devgraphiq.com/hostinger-recommends)** on premium web hosting plans and instantly unlock free perks, including a Free Domain and SSL certificate.
@@ -41,8 +35,8 @@ Use this **[Hostinger coupon code](https://devgraphiq.com/hostinger-recommends)*
 
 <p align="center">
   <a href="https://devgraphiq.com/hostinger-recommends">
-    <img width="200" alt="Claim Hostinger Coupon Code" src="https://github.com/user-attachments/assets/3bc101f1-4dbe-4fae-b9aa-d30f708e3fdf" />
-  </a>
+<img width="500" height="80" alt="Claim 88% OFF at Hostinger Now" src="https://github.com/user-attachments/assets/80c55e3f-2c09-448e-be0f-53450bbf3502" />
+</a>
 </p>
 
 
