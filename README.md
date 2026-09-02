@@ -4,6 +4,7 @@
 
 
 
+
 Looking for a **working Hostinger coupon code** to save money on a new hosting plan or renew your existing Hostinger hosting or domain? You’re in the right place.
 
 Get up to **[88% off Hostinger discount](https://www.hostinger.com/in?REFERRALCODE=HostingDeal2026)** through our recommended offer and unlock valuable extras such as a **free domain**, free SSL certificate, and reliable managed hosting.
