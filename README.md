@@ -1,4 +1,4 @@
-# Hostinger Coupon Code 2026: Get 88% OFF + Free Domain (Verified)
+# Hostinger Coupon Code 2026: 88% OFF + Free Domain & SSL
 
 <img width="1354" height="470" alt="Hostinger Coupon Code" src="https://github.com/user-attachments/assets/cc1466e4-ee2a-4b8e-bb3c-ac454d081418" />
 
